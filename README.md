@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **MEARN**
 
-- 📫 How to reach me **saurabhtiwari2501@gmail.com**
+- 📫 How to reach me **dev.saurabht@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LcsjV7PL2YQCkyUCA_vygKQV95EeK6B9/view?usp=share_link](https://drive.google.com/file/d/1LcsjV7PL2YQCkyUCA_vygKQV95EeK6B9/view?usp=share_link)
 
